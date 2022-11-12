@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Blaze-Glitch
-- I'm a game developer
+- I'm a game developer and pixel artist
 - Follow me on Twitter @BLAZE_GLITCH
 
 
